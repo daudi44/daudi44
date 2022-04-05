@@ -1,5 +1,5 @@
 ### Hola, Mi nombre es Dani 👋
-✍️ En mi tiempo libre me gusta trabajar en proyectos personales.\
+✍️ En mi tiempo libre me gusta trabajar en proyectos personales.
 
 
 ### 🛠 &nbsp;Conocimientos
